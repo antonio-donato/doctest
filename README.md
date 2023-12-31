@@ -19,3 +19,5 @@ Questo è un set per fonduta in ghisa MasterClass per cioccolato, formaggio e ca
 ## Dove acquistarlo
 
 Potete acquistare il set per fonduta in ghisa MasterClass sul sito ufficiale di MasterClass o su Amazon. Il prezzo è di € 49,99.
+
+[Link alla pagina Amazon](https://www.amazon.it/Kitchen-Craft-MasterClass-smaltata-forchette/dp/B0001IX3Q4/?_encoding=UTF8&pd_rd_w=6HxUI&content-id=amzn1.sym.71b80416-497a-4f4f-8a74-a10a42130992%3Aamzn1.symc.adba8a53-36db-43df-a081-77d28e1b71e6&pf_rd_p=71b80416-497a-4f4f-8a74-a10a42130992&pf_rd_r=7HWA0AHJAT0Y3JBS3R0D&pd_rd_wg=kVMc7&pd_rd_r=a17245c3-1b72-4f7e-a9c6-ea91db49aa33&ref_=pd_gw_ci_mcx_mr_hp_atf_m&th=1)
