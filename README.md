@@ -1,7 +1,5 @@
 # Set per fonduta in ghisa MasterClass
 
-!Set per fonduta in ghisa MasterClass
-
 Questo è un set per fonduta in ghisa MasterClass per cioccolato, formaggio e carne, 21 x 18 cm, nero. È perfetto per le cene o per una serata intima in casa.
 
 ## Caratteristiche
